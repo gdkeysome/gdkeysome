@@ -1,9 +1,10 @@
+art in repository made by @drawloverlala on tumblr/twitter !
 
 <img width="900" height="313" alt="Image" src="https://github.com/user-attachments/assets/8e3b3839-d0a8-42a2-8af1-0d15cd8deca7" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆˚꩜｡ㅤ**gd**/gdkey , she/her
 
-ㅤㅤㅤㅤart in repository made by @drawloverlala on tumblr/twitter ┆彡
+ㅤㅤㅤㅤ if youre gonna interact with me dont be weird or inappropriate 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤps . i have no idea how to make repositories look good sorry if this sucks
 
