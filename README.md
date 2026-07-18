@@ -3,5 +3,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**gd**/gdkey , she/her
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤart in repository made by @drawloverlala on tumblr/twitter !
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤart in repository made by @drawloverlala on tumblr/twitter 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤps . i have no idea how to make repositories look good sorry if this sucks
+
 <img width="900" height="313" alt="Image" src="https://github.com/user-attachments/assets/3b15fe26-d3c4-40f7-ac42-235f62064a5a" />
