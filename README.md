@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆˚꩜｡ㅤ**gd**/gdkey , she/her
 
-ㅤㅤㅤㅤart in repository made by @drawloverlala on tumblr/twitter 
+ㅤㅤㅤㅤart in repository made by @drawloverlala on tumblr/twitter ┆彡
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤps . i have no idea how to make repositories look good sorry if this sucks
 
