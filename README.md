@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. info : straw, pronouns.cc
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤC+H freely  ( unless around friends .!! 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤC+H freely  ( unless around friends .!! <img width="243" height="211" alt="Image" src="https://github.com/user-attachments/assets/736da2ff-38eb-4701-b084-11650c500d16" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤusually offtab , w2i :)
 
