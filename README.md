@@ -4,10 +4,10 @@ art in repository made by @drawloverlala on tumblr/twitter !
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆˚꩜｡ㅤ**gd**/gdkey , she/her
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h freely , unless around friends ✿ °•.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*c+h freely* , unless around friends ✿ °•.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤif youre gonna interact with me **dont be weird/inappropriate**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. check straw / pronouns.cc for more info
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ☄. *.  check straw / pronouns.cc for more info
 
 <img width="900" height="313" alt="Image" src="https://github.com/user-attachments/assets/3b15fe26-d3c4-40f7-ac42-235f62064a5a" />
